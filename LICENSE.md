@@ -1,4 +1,4 @@
-#  
+#  best Script for plants vs brainrots offers the most advanced plants vs brainrots Script, with invisibility and no cooldown. Perfect for dominating
 
 
 
